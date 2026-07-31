@@ -1,3 +1,6 @@
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=stastudios&style=flat&color=3ddff5&label=ㅤchest☆r!ㅤ" alt="profile views"> </p>
+
 longtime sta fan
 
 iwec chestato fans
